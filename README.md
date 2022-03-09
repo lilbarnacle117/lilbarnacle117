@@ -1,0 +1,6 @@
+- Hi, I’m anthony
+- I’m interested in gaming, anime, and music
+- I’m interested in collaborating on anything you want
+- How to reach me /insta @unga_bunga_clown_eater /discord useless#0961 /amino @barnacles81
+- if you'd like to learn more about me you can contact me through any socials listed \
+- have a nice day or night wherever you are<3
